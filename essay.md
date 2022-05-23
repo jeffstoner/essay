@@ -3,7 +3,7 @@
 
 ### Jean L. la Tournier
 
-_Department of Future Studies, University of California_
+_Department of Future Studies, University of Maryland_
 
 **Social realism and postdialectic capitalism**
 
